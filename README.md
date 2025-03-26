@@ -1,5 +1,5 @@
-## ![WorkComputerGIF](https://github.com/user-attachments/assets/bf5f8fb9-5f69-4ebb-8cba-10559ec721b2)
-![ScalerCreateImpactGIF](https://github.com/user-attachments/assets/cff092a2-c812-45e7-9a05-1f25eaedaf03)
+## ![SchoolWorkGIF](https://github.com/user-attachments/assets/c324199d-4ad8-42a8-8532-ed668a36100a)
+
 
 
 <!--
