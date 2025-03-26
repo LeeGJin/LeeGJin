@@ -1,4 +1,5 @@
-![StandingOvationGIF](https://github.com/user-attachments/assets/0927f89e-676b-47e7-a36a-3f63757ad535)## Hi there 👋 ![StandingOvationGIF (2)](https://github.com/user-attachments/assets/daa0168b-69c8-464a-ad3c-d7e5aa4c1c34)
+## ![WorkComputerGIF](https://github.com/user-attachments/assets/bf5f8fb9-5f69-4ebb-8cba-10559ec721b2)
+![ScalerCreateImpactGIF](https://github.com/user-attachments/assets/cff092a2-c812-45e7-9a05-1f25eaedaf03)
 
 
 <!--
