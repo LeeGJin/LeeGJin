@@ -1,4 +1,5 @@
-## Hi there 👋
+![StandingOvationGIF](https://github.com/user-attachments/assets/0927f89e-676b-47e7-a36a-3f63757ad535)## Hi there 👋 ![StandingOvationGIF (2)](https://github.com/user-attachments/assets/daa0168b-69c8-464a-ad3c-d7e5aa4c1c34)
+
 
 <!--
 **LeeGJin/LeeGJin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
